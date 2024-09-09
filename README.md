@@ -1,6 +1,6 @@
 ### Olá sou o Vinícius, mais conhecido como Cowboy
 
-- 17 anos
+- 18 anos
 - Futuro met veterinário
 - Cursando alura
 - Futuro rob montar em boi
